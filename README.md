@@ -1,1 +1,1 @@
-# Aufwandssch-tzung
+# Aufwandsschaetzung
